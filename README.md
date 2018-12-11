@@ -1,1 +1,1 @@
-My attempt to build the famous Hot Dog not Hot Dog
+Jin and Teddy's attempt to build the famous Hot Dog not Hot Dog
